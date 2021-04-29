@@ -41,7 +41,7 @@
 接招吧！前辈  
 
 ### 杂志写真
-![芭莎男士](https://p0.ssl.img.360kuai.com/t0185c340368ab5ecd5.webp)
+![芭莎男士](https://5b0988e595225.cdn.sohucs.com/images/20200103/895f703d97c54e119ef9dd3eb3b8b0d8.jpeg)
 ![博客天下](./photo.jpg "handsome")
 ## 获奖记录
 
